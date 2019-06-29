@@ -1,4 +1,4 @@
-# How-to-Hack-cheat-Toon-Blast
+# How-to-Hack-Toon-Blast
 
 Are you searching a best Toon Blast Hack 2019 to get free Coins? If the answer is yes, then you should now try Toon Blast Cheats in 2019.Enter the crazy cartoon world starring Cooper Cat without validation. 
 
